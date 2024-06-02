@@ -1,7 +1,6 @@
 # 5G+让工业生产线更高效www.5g2.6ghz
 妈对待小时候的我们那样耐心温柔地对七
-
-👉/观/看/入/口👉http://www.baidu.com/link?url=9GtYscxq2JHtl4wpmtdwIAAxXmBlUXzKrLhK6E7cDRO&wd
+<a href="https://github.com/getmal/fdwwt/issues/2">👉👉👉♥♥点此进入♥观看入口👈👉👉</a>
 
 5G+让工业生产线更高效www.5g2.6ghz	2、节饮食以养胃，多读书以养胆。庄周
 走在人生的路上，有几何身影从身边急遽而过，无从领会，由于咱们即是个中的一员。这长久的路上，咱们不用迟疑查看，更不必杞人忧天，咱们更多的应是开销该开销的，彼此安慰，带着一种超然、宽大的人生作风接收挑拨。
